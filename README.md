@@ -6,7 +6,7 @@
 
 
  <p>
-I am Mid-level Software developer able to build a Web presence from the ground up - from concept, navigation, layout and programming. Skilled at writing clean, testable and efficient code using current best practices in Web development. Good learner, hard worker and team player who is proficient in an array of scripting languages and multimedia Web tools. My background in business and development has honed my soft skills into what they are today!
+I am Mid-level, self taught, Software developer able to build a Web presence from the ground up - from concept, navigation, layout and programming. Skilled at writing clean, testable and efficient code using current best practices in Web development. Good learner, hard worker and team player who is proficient in an array of scripting languages and multimedia Web tools. My background in business and development has honed my soft skills into what they are today!
 
 Big movie🎥 buff, red🍷wine drinker & king of smoking 🍗🍖🐔meat on my trusted Traegar 650 😁.
 
