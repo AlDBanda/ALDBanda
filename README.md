@@ -1,4 +1,4 @@
-### Hi there 👋 I'm [Alfred Banda]
+### Hi there 👋 I'm Alfred Banda
 > Fullstack Software Developer 
 
 
